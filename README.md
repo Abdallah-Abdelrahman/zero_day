@@ -1,1 +1,1 @@
-# The first day on the _propaiton_ period
+# The first day on _probation_ period
